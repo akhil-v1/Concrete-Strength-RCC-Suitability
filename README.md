@@ -1,1 +1,0 @@
-# Concrete-Strength-RCC-Suitability
